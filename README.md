@@ -18,3 +18,9 @@
 ![Screenshot (638)](https://user-images.githubusercontent.com/92696505/186884093-c4a9f71f-bc2a-4d62-bda5-266a6801976c.png)
 ![Screenshot (639)](https://user-images.githubusercontent.com/92696505/186884145-3175c753-97bd-438d-b84d-0416bbcf85af.png)
 ![Screenshot (644)](https://user-images.githubusercontent.com/92696505/186884374-221bf10a-d8c1-4898-8059-9bb4a62788d3.png)
+
+![Screenshot (690)](https://github.com/hunternodine/gzairdrops/assets/92696505/92d3d9e3-f291-4920-b52c-56f93cdcf8af)
+![Screenshot (692)](https://github.com/hunternodine/gzairdrops/assets/92696505/dc7191c0-7664-4ca1-b6dd-009eaef449d4)
+![Screenshot (699)](https://github.com/hunternodine/gzairdrops/assets/92696505/8292b2cd-6a6a-4643-95de-1f9d3556dbb7)
+![Screenshot (701)](https://github.com/hunternodine/gzairdrops/assets/92696505/bad28a97-8700-489f-b256-983fae5a7962)
+![Screenshot (689)](https://github.com/hunternodine/gzairdrops/assets/92696505/078d56a3-d480-4c41-a740-3748791847f4)
