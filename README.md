@@ -30,3 +30,5 @@
 ![dayzcraftingwb](https://github.com/hunternodine/gzairdrops/assets/92696505/f42f1eec-7b32-43e7-bdec-8a883ce7dbf4)
 ![dayzkeys_1](https://github.com/hunternodine/gzairdrops/assets/92696505/a391ab31-6850-4ff7-b1cb-fafcbaf1a3d1)
 ![dayzkeycards](https://github.com/hunternodine/gzairdrops/assets/92696505/ac526674-78fe-4caa-9db3-9767cec7a5bf)
+![ATMs](https://github.com/hunternodine/gzairdrops/assets/92696505/5d8bf214-f4cf-4ae7-aa29-43da522f8ba7)
+![dayzraidalarm](https://github.com/hunternodine/gzairdrops/assets/92696505/2a29a39f-cadf-4ce7-967d-5c885d31dc00)
